@@ -1,0 +1,1 @@
+Ik heb deze eindopdracht gemaakt in de WincAcademy repository dus ik hoop dat alle commits die ik heb gemaakt mee over zijn gekomen naar de nieuwe repository.
